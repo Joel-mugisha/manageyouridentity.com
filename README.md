@@ -1,1 +1,1 @@
-# manageyouridentity.com
+# Manageyourself.com
